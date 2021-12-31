@@ -1,0 +1,1 @@
+# Temperature-effects-on-crop-yields-in-heat-index-insurance
